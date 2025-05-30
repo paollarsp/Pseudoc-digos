@@ -1,1 +1,0 @@
-# Pseudoc-digos
